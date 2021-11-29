@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kenny_thomas
-- 👀 I’m interested in Digital Marketing and Data Analysis collaborations 
+- 👀 I’m interested in Marketing meet ups and Data Analysis collaborations 
 - 👨‍🎓 have a Diploma in Business Data Analytics 
 - 👨‍💻 Also love Data visualisation 
 -  𓀊 I specialise in Digital marketing Data and Insights 
