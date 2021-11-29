@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kenny_thomas
+- 👀 I’m interested in Digital Marketing and Data Analysis   
